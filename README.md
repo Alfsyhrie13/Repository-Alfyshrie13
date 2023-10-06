@@ -1,2 +1,4 @@
 # Repository-Alfyshrie13
-ini Repository baru saya...
+Muhammad Alfisyahrie Riyanto
+1462200003
+A - Kecerdasan Artifisial
